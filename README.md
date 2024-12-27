@@ -1,0 +1,1 @@
+# https-locapart-scout.lovable.app-
